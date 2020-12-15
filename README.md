@@ -1,1 +1,1 @@
-# CATCHER-GUARDV2
+Loz Bey sunucusu için WenSamita Neiva Tarafından Oluşturulmuştur
